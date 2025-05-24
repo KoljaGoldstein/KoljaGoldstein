@@ -1,4 +1,4 @@
-- 💰 cb hitter (feds this a joke)
+- 💰 I be ballin
 
 <!---
 KoljaGoldstein/KoljaGoldstein is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
